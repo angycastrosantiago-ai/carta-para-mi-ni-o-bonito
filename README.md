@@ -1,2 +1,4 @@
-# carta-para-mi-ni-o-bonito
-pocas son las palabras para explicar lo mucho que me encantas
+#Carta-para-mi-amorcito
+pocas son las palabras para explicar lo mucho que me encantas y lo especial que ya eres en mi vida, Gastaría cada velita de cumpleaños, cada diente de león que sople, cada estrella fugaz, cada 11:11, cada trébol de cuatro hojas, cada pestaña que se me caiga, cada moneda lanzada a una fuente, cada hora espejo, cada vez que cruce los dedos, cada pluma blanca que encuentre en la calle, cada mariquita que se me pose en la mano, cada vez que vea ​Un arcoíris doble en el cielo, cada Wishbone quebrada y cada hoja que atrape en el aire antes de tocar el suelo, todo, absolutamente todo, con un solo propósito en pedir el mismo deseo: que siempre seas tu.
+contigo entendí el sentido de esta canción https://open.spotify.com/track/1G9wM0DIuyxn0m0QeENIkl?si=F_4lkrNzReqxF-EuLVrA4Q&utm_source=copy-link&pi=kBW82j8jQ2SKS&sci=spotify%3Acard-config%3A230ISwTrZjhPWhB0ypnx7g
+y no solo de esa canción, sino que también de todo lo relacionado a lo bonito que es el amor.
